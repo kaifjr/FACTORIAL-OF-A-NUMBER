@@ -67,17 +67,14 @@ END
 <br>
 <br>
 <br>
+<img width="1919" height="1142" alt="Screenshot 2025-10-24 081706" src="https://github.com/user-attachments/assets/762843f8-fa7e-4923-99ae-24abe38f3390" />
 
 
 
 **Manual Calculations:**  
 
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
+![WhatsApp Image 2025-10-24 at 19 24 20_16167e62](https://github.com/user-attachments/assets/68c0a889-e502-4353-934e-45407898bab5)
+
 
 
 
